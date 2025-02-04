@@ -5,7 +5,7 @@ Cooperativa dos Produtores Rurais do Prata
 
 ## 🎓 Formação Acadêmica
 - **Faculdade Pitágoras**  
-  - Engenharia de Computação (Cursando - 6º período)  
+  - Engenharia de Computação (Cursando - 7º período)  
   - Período: 2022 - 2026  
 
 ## 🏆 Licenças e Certificados
